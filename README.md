@@ -5,4 +5,4 @@ olá, meu nome é Eric e estou aqui para compartilhar meus projetos!!
 se quiser entrar em contato comigo, manda nesse gmail:
 *@00001102739893sp@al.educacao.sp.gov.br* 😃👍🏼
 
-![](https://tenor.com/pt-BR/view/naruto-gif-19427546)
+![.](https://tenor.com/pt-BR/view/naruto-gif-19427546)
